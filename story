@@ -16,6 +16,13 @@ The Lion looked around and said "Who is responsible for the stampede!" he yelled
 There was a lot of confusion, and eventually, it all came down to the Rabbit, and he claimned
 he saw it with his own eyes.
 
+The Lion was not convinced. 
+How can it be, he thought to himself. 
+No trees are burning and nothing is happening in the forest. 
+There is just smoke i see and nothing else. 
+The birds and other creatures in the forest hadn't bothered coming here, 
+so it might be something way less serious.
+
 The Lion went with the rabbit to see if it was an actual fire, but it turned out to be a bunch
 of friendly humans just using a campfire. The Lion went back into the forest, with the rabbit. 
 
